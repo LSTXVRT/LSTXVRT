@@ -1,4 +1,4 @@
-This is the official Github page for LSTXVRT. You can contact me over at wholesalerlst09@gmail.com, and my Discord is: TRVXTSL#3321
+This is the official Github page for TRV. You can contact me over at wholesalerlst09@gmail.com, and my Discord is: TRV#1806
 
 <!---
 LSTXVRT/LSTXVRT is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
